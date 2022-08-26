@@ -1,4 +1,4 @@
-- Hi, I’m @IgnorbSnapps
+- Hi, I’m @Snappscancode (at least i think)
 I do modeling, texturing and a dabble of animation.
 
 
